@@ -1,4 +1,4 @@
-# ThunderFlashxFPS_Center_King_of_The_Baltic
+# ThunderFlash x FPS_Center King of The Baltic
 
 After a brief hiatus, the ThunderFlash organization is returning to active operation and, in collaboration with its key partner FPS Center is proud to present a new tournament dedicated to the Baltic Counter-Strike scene.
 
