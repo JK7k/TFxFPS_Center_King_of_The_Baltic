@@ -40,7 +40,7 @@ The top four teams, the upper bracket finalists and the lower bracket finalists 
 
 **Prize Pool**
 
-The total prize pool is 16,000 PLN (~ 4,400 USD / 3,760 EUR).
+The total prize pool (depends on the number of teams) is 16,000 PLN (~ 4,400 USD / 3,760 EUR).
 
 It will be distributed as follows:
 
